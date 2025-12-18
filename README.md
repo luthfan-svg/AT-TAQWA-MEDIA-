@@ -1,2 +1,2 @@
 # AT-TAQWA-MEDIA-
- Taman Pendidikan Al-Qur'an At-Taqwa,Majelis Pendidikan " AT-TAQWA" 
+ Mencetak Generasi qur'ani Yang Berakhlakul Karimah,berilmu,dan beramal 
